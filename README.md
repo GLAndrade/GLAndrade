@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on (Pisa)
 - 📫 How to reach me ...
 - 😄 Pronouns: (Ceará SC)
-- ⚡ Fun fact: (O Kleirton é Two-Spirit
+- ⚡ Fun fact: (O Kleirton é Two-Spirit)
 
 <!---
 GLAndrade/GLAndrade is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
